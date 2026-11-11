@@ -1,6 +1,6 @@
 # Khe Nguyen
 
-Engineer, founder, and first of all a mother.
+Engineer, founder. OZOverse began with my two daughters.
 
 I have spent more than 20 years founding and operating technology companies. Today I lead two things:
 
